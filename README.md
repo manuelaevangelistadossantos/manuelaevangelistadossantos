@@ -1,16 +1,17 @@
-## Hi there 👋
+## Hi there 👋 seja bem vindo ao meu perfil🌙
 
-<!--
-**manuelaevangelistadossantos/manuelaevangelistadossantos** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+meu nome é a Manu
 
-Here are some ideas to get you started:
+-estou estudando no  Antonio Florentino
+- gosto de ler livros
+- adoro admirar a lua
+- faço crisma e faço curso de consagração
+- ### voce estrar em contato comigo📫
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+00001113024409sp@aluno.educacao.sp.gov.br
+
+
+![]()
+![image](https://github.com/user-attachments/assets/62772d4b-a4f2-4b2e-8794-b0d8e552318f)
+
+
